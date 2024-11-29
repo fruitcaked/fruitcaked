@@ -1,7 +1,3 @@
-##### <p align="center"> read my main [@onewheatmark](https://github.com/onewheatmark) ^.^
-##### <p align="center"> <img src="https://i.ibb.co/74GPwmP/aw-babies-1.gif" width="450" /> 
-##### <p align="center"> or╯[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&size=15&duration=700&pause=2000&color=C06030&background=FFFFFF00&center=true&width=50&height=30&lines=cody!)](https://git.io/typing-svg)　　it he　　remaking thiss
-##### <p align="center"> <[taken](github.com/trody)3 hay trent >w<　　𑄽𑄺　　i love my bf :3
-##### <p align="center">[ata](https://bouncinonmywood.atabook.org/)　　[main github](https://github.com/onewheatmark)　　[disc](https://discordid.netlify.app/?id=967996558966657025)
-##### <p align="center"> [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&size=15&duration=1&pause=700000&color=C06030&background=FFFFFF00&center=true&width=100&height=30&lines=%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1)](https://git.io/typing-svg)![](https://komarev.com/ghpvc/?username=onewheatmark&color=c06030&style=plastic&label=profile+views)[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&size=15&duration=1&pause=700000&color=C06030&background=FFFFFF00&center=true&width=100&height=30&lines=%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1%E2%97%A1)](https://git.io/typing-svg)
-##### <p align="center"> ![yaoi](https://github.com/user-attachments/assets/fcd47acc-90ef-4975-9007-d8a41879426a)
+read my main [@onewheatmark](https://github.com/onewheatmark) ^.^
+hi hi hi hi im cosmo or cody ahmm im cool pls interact talk to me whoever
+offtab alot so jsut whisper me and ill get back to u!!!!!!!!!! yay!
